@@ -1,0 +1,1 @@
+# zadania-od-1-do-6-tabelka
